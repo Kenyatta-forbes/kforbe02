@@ -1,4 +1,4 @@
-👋 Hi, I’m @kforbe02
+Hi, I’m @kforbe02
 
 TLDR: Hey you! You’ve landed on the personal user manual for me – a very quick tour of my personality and quirks. This by no means is a must read. Feel free to skim it, read in its entirety, or none at all. The aim is to help colleagues understand me better, to make our relationships easier, more fun, and productive :) If you have questions or suggestions for changes, feel free to get in touch. 
 
